@@ -1,6 +1,4 @@
-Of course! Here's a reimagined, clean and engaging GitHub introduction that blends a touch of storytelling with a confident, professional tone — perfect for making a solid impression:
 
----
 
 ### 👋 Hi there! I'm **Anwesha Mahapatra**
 
